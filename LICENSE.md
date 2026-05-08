@@ -1,4 +1,4 @@
-
+Figma for macOS instant Brushes: AI upscaling & custom brushes offers the most advanced Figma for macOS brush, with AI upscaling and custom brushes. Ideal for professional
 
 
 
